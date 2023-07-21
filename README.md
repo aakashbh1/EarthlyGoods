@@ -1,1 +1,1 @@
-https://earthlygreen.cyclic.app/
+https://earthlygoods.cyclic.app
